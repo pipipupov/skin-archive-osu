@@ -1,2 +1,3 @@
-# skin-archive-osu
-this is my osu skin archive that i made 4 fun
+# sw4g's skins
+ето мои коллекции скинов которые я делаю чисто (нахуя??)
+вы можете скачать че угодно мне пох есч естно, <3
